@@ -39,7 +39,7 @@
 - HI SHO! u are so awesome sauce i love your skins... especially nikai.... shhhh..... and callboy akito..... KYAA~ hello kaito oshi...
 
 **EIV** @Gakukaiyaoi on github!
-- HI yaoileader.. i have nothing else to say but um YOURE COOL OK i like your gakupo pony.. fidgets nervously... its so KYAA! gakukai mentioned too.. caresses the screen.. peak ship ok? i love yaoi..
+- HI yaoileader.. i dont have that much to say but um YOURE COOL OK i like your gakupo pony.. fidgets nervously... its so KYAA! gakukai mentioned too.. caresses the screen.. peak ship ok? i love yaoi..
 
 **REN** @akikasayaoi on github!
 - HI UNC no.2 im your nephew and an akikasaling please protect me at all costs...! anyway yes youre awesome unc same with your boyfriend @yaoitism ok? i like your choice of words it makes me giggle. i have nothing else to say....
